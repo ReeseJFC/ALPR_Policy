@@ -75,7 +75,7 @@ No system is perfectly secure, but we take reasonable steps to protect the infor
 
 Contact your property management office or reese.hu@johnflatleyco.com. We will respond within 30 days. Depending on where you live, you may have additional rights under state privacy law.
 
-**Staff.** Your work account is managed by John Flatley Company. Questions about the information recorded under your account go to [contact email].
+**Staff.** Your work account is managed by John Flatley Company. Questions about the information recorded under your account go to reese.hu@johnflatleyco.com.
 
 ## Children
 
